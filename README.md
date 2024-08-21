@@ -1,16 +1,13 @@
-## Hi there 👋
+### I'm here just because the school force me ❤️
 
-<!--
-**Sam0yDBA/Sam0yDBA** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+My name doesn't it matters
 
-Here are some ideas to get you started:
+- I don't like to stay here
+- I love english
+- My first languege is Portuguese
+- Why do you here?
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ ### Don't talk with me
+
+
+![](https://media1.tenor.com/m/vxFNoJHV3I4AAAAC/chiquichico.gif)
